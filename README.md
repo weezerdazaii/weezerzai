@@ -8,4 +8,4 @@ hello im mya, i join random fandoms for a living and here are some things i didn
 
 - i have shit internet so if im unresponsive, leave in the middle of convos / events... it cut out 💔
 
-- im a yumeshipper
+- im a professional at crackshipping
