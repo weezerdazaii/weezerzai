@@ -1,0 +1,2 @@
+# weezerzai
+intro 😈🤞💯
