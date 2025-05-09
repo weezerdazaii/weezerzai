@@ -10,4 +10,4 @@ hello im mya, i join random fandoms for a living and here are some things i didn
 
 - im a crackshipping and selfshipper (i dont really take shipping seriously tbh.)
 
-- feel free to c=h with me! im completly fine w it!!
+- feel free to c+h with me! im completly fine w it!!
